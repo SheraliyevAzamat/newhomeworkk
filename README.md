@@ -1,0 +1,2 @@
+# newhomeworkk
+all codes
